@@ -2,7 +2,7 @@
 ##Capitulo Uno
 ###Desvelado.
 
-Tratabamos de caminar diario, no siempre se podía, muchas veces era de subirnos a la camioneta para poder llegar a tiempo. Pero en esta ocasión estabamos caminando por que era bueno para el corazón y según algunas fuentes de salud, decían que alargaba la vida; y no siempre sabíamos donde iba a ocurrir una injusticia, es por eso que aunque con la camioneta eramos más rápidos, a veces nos tenía al otro lado de la ciudad y no llegabamos en buen momento. Tampooco podíamos usar la comunicación de emergencias, era ilegal.
+Como muchos fines de semana, tratabamos de caminar diario, no siempre se podía, muchas veces era de subirnos a la camioneta para poder llegar a tiempo. Pero en esta ocasión estabamos caminando por que era bueno para el corazón y según algunas fuentes de salud, decían que alargaba la vida; y no siempre sabíamos donde iba a ocurrir una injusticia, es por eso que aunque con la camioneta eramos más rápidos, a veces nos tenía al otro lado de la ciudad y no llegabamos en buen momento. Tampooco podíamos usar la comunicación de emergencias, era ilegal.
 
 
 -Ni me hubiera levantado hoy- Me comentó Juan, hacía mucho calor y ya comenzabamos a sudar.
