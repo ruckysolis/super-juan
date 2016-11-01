@@ -40,4 +40,4 @@ Tratabamos de caminar diario, no siempre se podía, muchas veces era de subirnos
 -Esperemos y no pase nada.
 
 
-Y ese día no pasó nada. Legaron ya atardeciendo a casa de Juan a ver Club de Cuervos en Netflix. Y se desvelaron jugando la campaña de Gears of War en dificultad Locura.
+Y ese día no pasó nada. Llegamos ya atardeciendo a casa de Juan a ver Club de Cuervos en Netflix. Y nos develamos jugando la campaña de Gears of War en dificultad Locura.
